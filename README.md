@@ -1,0 +1,1 @@
+For usage, see http://bbs.sumisora.org/read.php?tid=11038854
